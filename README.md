@@ -1,0 +1,1 @@
+Zudio is a fashion retail brand owned by the Indian retail company, V-Mart. It offers a range of affordable and trendy clothing and accessories for men, women, and children. Zudio is known for its budget-friendly prices and contemporary styles, making it popular among shoppers looking for value without compromising on fashion. Do you have any specific questions about it?
